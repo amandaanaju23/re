@@ -1,1 +1,1 @@
-pagína teste: https://amandaanaju23.github.io/semantica/
+pagína teste: https://amandaanaju23.github.io/re/
